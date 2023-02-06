@@ -1,13 +1,15 @@
-## “这百个第一美国当之无愧”
+## “这100个第一美国当之无愧”
 
-- 全球第一抗疫失败国
-- 全球第一政治甩锅国
-- 全球第一疫情扩散国
-- 全球第一政治撕裂国
-- 全球第一货币滥发国
-- 全球第一疫期动荡国
-- 全球第一虚假信息国
-- 全球第一溯源恐怖主义国
+每一个都是实际发生的证据确凿的案例
+
+- [全球第一抗疫失败国](https://www.youtube.com/shorts/NifxCCPpPtw)
+- [全球第一政治甩锅国](https://www.youtube.com/shorts/NifxCCPpPtw)
+- [全球第一疫情扩散国](https://www.youtube.com/shorts/NifxCCPpPtw)
+- [全球第一政治撕裂国](https://www.youtube.com/shorts/NifxCCPpPtw)
+- [全球第一货币滥发国](https://www.youtube.com/shorts/NifxCCPpPtw)
+- [全球第一疫期动荡国](https://www.youtube.com/shorts/NifxCCPpPtw)
+- [全球第一虚假信息国](https://www.youtube.com/shorts/NifxCCPpPtw)
+- [全球第一溯源恐怖主义国](https://www.youtube.com/shorts/NifxCCPpPtw)
 - [全球第一房产烂尾国](https://github.com/WeNeedHome/SummaryOfLoanSuspension)
 - [全球第一友善城管国](https://www.youtube.com/results?search_query=%E5%9F%8E%E7%AE%A1%E6%89%93%E4%BA%BA)
 - [全球第一免费医疗国](https://haokan.baidu.com/v?pd=wisenatural&vid=11102525444278892635)
