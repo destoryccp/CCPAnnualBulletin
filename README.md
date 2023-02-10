@@ -44,7 +44,7 @@
 - [全球第一万元购药国](https://baijiahao.baidu.com/s?id=1752526347426607906&wfr=spider&for=pc)
 - [全球第一民主选举国](https://www.youtube.com/watch?v=QdV0FC-F18o&list=PLzRRSqmu_F4_UVFFxHPkHo3zoZXFnGv2Z&index=1)
 - [全球第一人才跑路国](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20230204-%E6%B3%95%E6%96%B0%E7%9C%8B%E4%B8%AD%E5%9B%BD%E5%BE%88%E5%AF%8C%E7%9A%84%E4%BA%BA%E6%9B%B4%E5%A4%9A%E7%A7%BB%E6%B0%91%E6%96%B0%E5%8A%A0%E5%9D%A1%E4%BF%9D%E5%AE%B6%E5%8D%AB%E8%B4%A2)
-- [全球第一核酸检测国](https://www.rfa.org/cantonese/news/pcr-09172022063154.html)
+- [全球第一核酸盛世国](https://www.rfa.org/cantonese/news/pcr-09172022063154.html)
 - [全球第一政府赖账国](https://github.com/destoryccp/togetherMemory/blob/main/2023.md#%E8%AE%A8%E8%96%AA)
 - [全球第一汇率自由国](https://www.bbc.com/zhongwen/simp/world-49239585)
 - [全球第一贪官污吏国](https://www.voachinese.com/a/ccp-20th-conference-report-xi-s-anti-corruption-is-only-a-tool-of-internal-struggle-20220911/6740332.html)
